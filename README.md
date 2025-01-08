@@ -1,1 +1,2 @@
 # jkchoy.github.io
+# I was born and raised on Oahu, and this is my second time through college. I first graduated from Honolulu Community College in 2008 and 2009 with degrees in Cosmetology and Esthetics, then went on to complete Massage Therapy school in 2011. I currently own my own business where I offer massage therapy, cupping, waxing, and ear seed services. I'm a mom of two and have a very clingy Australian Shepherd/Blue Heeler mix dog. After graduating from KCC’s New Media Arts Interface Program, my next goal is to attend Acupuncture school right here on Oahu.
